@@ -38,4 +38,4 @@ Keep the project extremely minimal and simple with realistic milestones for the 
 | Lesia | Soloviova | www.linkedin.com/in/lesia-soloviova |
 | Myroslava | Tsiupiak | linkedin.com/in/myroslav a-tsiupiak-a656151b3 |
 
-
+Add myself to participants
